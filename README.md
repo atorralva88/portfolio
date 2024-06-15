@@ -1,0 +1,1 @@
+This is a collection of most of the projects I have worked on over the course of my years at RIT. They include poems and poem portfolios, critical analysis essays of novels, books, movies, and videogames, as well as personal projects I have worked on.
